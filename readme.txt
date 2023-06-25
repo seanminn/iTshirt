@@ -1,1 +1,1 @@
-Developer Tshirt Mall Open Source
+Developer Tshirt Mall Open Source - JJANG
